@@ -1,2 +1,2 @@
-# Programaci-n-2025
+# | | Especialidad-2025 | |
 Aquí solo habrá información del cole
